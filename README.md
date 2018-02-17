@@ -1,3 +1,4 @@
 # hah
-this is a repositroy
+
 dsafdafaf
+撒旦法法师方法
